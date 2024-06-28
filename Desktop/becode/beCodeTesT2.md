@@ -10,7 +10,7 @@ I'm a bartender, have been for 7 years, which makes me able to make some mean co
 
 - Pretty average campfire guitar player.
 - Chess master, could easily beat Magnus Carlsen.
-- Sports enthusiast (when he feel like it).
+- Sports enthusiast (when he feels like it).
 - Is able to juggle pretty much anything.
 - Best bartender in the world.
 - Sarcasm.
