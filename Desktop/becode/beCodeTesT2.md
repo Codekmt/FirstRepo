@@ -1,8 +1,8 @@
-  # <p style="text-align: center;">Keanu M. Teixeira</p> 
+> # <p style="text-align: center;">Keanu M. Teixeira</p> 
 
 > ### A summary about the second most famous Keanu.
 
-I never really know how to begin these soooo svoila. 
+I never really know how to begin these soooo voila. 
 
 I'm a bartender, have been for 7 years, which makes me able to make some mean cocktails. For which my signature favorite one is a "Rodeo Rendez-Vous". I also partake in activities without alcohol haha.
 
@@ -38,7 +38,6 @@ Idk, don't really like wasps.
 - More eyes on the project.
 - Just way more fun. And motivating.
 
-<p style="text-align: center;">
 
 <br></br>
 
